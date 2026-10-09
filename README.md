@@ -1,0 +1,2 @@
+# PENJUALAN-2-
+QR CODE
